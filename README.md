@@ -1,2 +1,2 @@
-# Welcome to My awards-certifications Repository
+# Welcome to my Awards-Certifications Repository
 #### © 2022 lbachannel
